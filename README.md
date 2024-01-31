@@ -2,12 +2,18 @@
 These are the projects and assignments I did during this semester and also a reflection about those.
 
 [Assignment 1.pdf](https://github.com/RashadulRD786/Projects/files/14110588/Assignment.1.pdf)
+
 [Assignment2.pdf](https://github.com/RashadulRD786/Projects/files/14110607/Assignment2.pdf)
 https://youtu.be/LOq4pDfjb3A
+
 [Assignment 3.pdf](https://github.com/RashadulRD786/Projects/files/14110617/Assignment.3.pdf)
+
 [Assignment 4.pdf](https://github.com/RashadulRD786/Projects/files/14110619/Assignment.4.pdf)
+
 [_Our Design Thinking Adventure(design thinking report).pdf](https://github.com/RashadulRD786/Projects/files/14110625/_Our.Design.Thinking.Adventure.design.thinking.report.pdf)
+
 https://youtu.be/LCNzVyBjoto
+
 [PC Assembly (1).docx](https://github.com/RashadulRD786/Projects/files/14110665/PC.Assembly.1.docx)
 
 
